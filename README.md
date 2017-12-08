@@ -1,2 +1,0 @@
-# Diksha-Chopra
-Portfolio
